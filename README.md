@@ -1,1 +1,0 @@
-# sranda_animationbandera02pwx1ki
